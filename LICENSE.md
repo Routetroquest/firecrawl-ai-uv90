@@ -1,4 +1,4 @@
-# 
+# Nativo Firecrawl predefinições. Com análise de documentos e IA explicável — otimizado para máximo desempenho e eficiência.
 
 
 
